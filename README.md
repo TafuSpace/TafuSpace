@@ -8,6 +8,6 @@ $\color{Coral }{\text{﹒      𝑅𝑢 ⇀ 𝐸𝑛𝑔 (𝑖 𝑑�
 $\color{Coral }{\text{﹒      𝑏𝑎𝑠𝑖𝑐 𝑑𝑛𝑖  }}$ 
 ⠀⠀
 
-$\color{Beige }{\text{﹑      ⌣⌣⌣⌣⌣⌣⌣༄˖°.🪐.ೃ࿔*:･⌣⌣⌣⌣⌣⌣⌣}}$ 
+$\color{Beige }{\text{   ˚　　　　✦　　　.　　. 　 ˚　.⌣⌣⌣⌣⌣⌣⌣༄˖°.🪐.ೃ࿔*:･⌣⌣⌣⌣⌣⌣⌣﹑　　　 . ✦　　　 　˚　　　 . ★.}}$ 
  
 ![Image Alt](https://github.com/TafuSpace/TafuSpace/blob/main/93920769f974b94d4b9616d5e2d126b0.jpg?raw=true)

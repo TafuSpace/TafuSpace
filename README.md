@@ -6,7 +6,7 @@ $\color{Turquoise }{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$
 $\color{Coral }{\text{﹒      𝑅𝑢 ⇀ 𝐸𝑛𝑔 (𝑖 𝑑𝑜𝑛’𝑡 𝑠𝑝𝑒𝑎𝑘 𝐸𝑛𝑔𝑙𝑖𝑠ℎ 𝑤𝑒𝑙𝑙)}}$ 
  
 $\color{Coral }{\text{﹒      𝑏𝑎𝑠𝑖𝑐 𝑑𝑛𝑖  }}$ 
-⠀⠀
+⠀⠀s ata https://tafuspace.atabook.org/
 
 $\color{Beige }{\text{   ˚　　　　✦　　　.　　. 　 ˚　.⌣⌣⌣⌣⌣⌣⌣༄˖°.🪐.ೃ࿔*:･⌣⌣⌣⌣⌣⌣⌣﹑　　　 . ✦　　　 　˚　　　 . ★.}}$ 
  

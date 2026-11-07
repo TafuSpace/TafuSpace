@@ -11,7 +11,7 @@ $\color{Coral }{\text{﹒     ㅤㅤㅤㅤㅤㅤ 𝑹𝑢 ⇀ 𝐸�
 
 $\color{Turquoise }{\text{  ﹑      ◜ 𝑯𝒆 𝒊𝒔 𝒔𝒐 𝙈𝙀   }}$ 
  <img width="155" height="368" alt="Image" src="https://github.com/user-attachments/assets/7e9ba5b0-2b98-4a85-a41a-6aa632c125f8" /> <img width="200" height="188" alt="Image" src="https://github.com/user-attachments/assets/48cbbd29-0d9b-4ba8-87b9-845749aa3e96" />
-$\color{Beige }{\text{   ˚　　　　✦　　　.　　. 　 ˚　.⌣⌣⌣⌣⌣⌣⌣༄˖°.🪐.ೃ࿔*:･⌣⌣⌣⌣⌣⌣⌣﹑　　　 . ✦　　　 　˚　　　 . ★.}}$ 
+ㅤ$\color{Beige }{\text{ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  ˚　　　　✦　　　.　　. 　 ˚　.⌣⌣⌣⌣⌣⌣⌣༄˖°.🪐.ೃ࿔*:･⌣⌣⌣⌣⌣⌣⌣﹑　　　 . ✦　　　 　˚　　　 . ★.}}$ 
  
 
 > 

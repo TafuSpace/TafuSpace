@@ -2,9 +2,8 @@ $\color{Turquoise }{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$
 
  $\color{Coral}{\text{      𝑰`𝑚 𝑇𝑟𝑎𝑓𝑎𝑟𝑒𝑇 𝑜𝑟 𝑇𝑎𝑓𝑢 ◝  𝐴𝑛𝑦 𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠 ◝ }}$
  $\color{Coral }{\text{      𝐸𝑁𝐹𝑃 : 𝑎𝑠𝑒𝑥𝑢𝑎𝑙 : 𝐸𝑛𝑛𝑒𝑎𝑔𝑟𝑎𝑚 𝑇𝑦𝑝𝑒 𝟸 (𝑤𝑖𝑡ℎ 𝑠𝑡𝑟𝑜𝑛𝑔 𝟽 𝑡𝑒𝑛𝑑𝑒𝑛𝑐𝑖𝑒𝑠) 𝑜𝑘  }}$  
- $\color{Coral }{\text{ ﹑            𝑹𝑢 ⇀ 𝐸𝑛𝑔 (𝑏𝑎𝑑 𝑠𝑜𝑟𝑟𝑦) ⚝ }}$ 
-$\color{Coral }{\text{ 𝑫𝑵𝑰: 𝓑𝑎𝑠𝑖𝑐  + 𝑝𝑝𝑙 𝑤𝑖𝑡ℎ 𝑠𝑢𝑖𝑐𝑖𝑑𝑎𝑙 𝑡ℎ𝑜𝑢𝑔ℎ𝑡𝑠 }}$ 
- 
+  $\color{Coral }{\text{ ﹑            𝑹𝑢 ⇀ 𝐸𝑛𝑔 (𝑏𝑎𝑑 𝑠𝑜𝑟𝑟𝑦)}}$ 
+$\color{Turquoise }{\text{ ⚝  𝑫𝑵𝑰: 𝓑𝑎𝑠𝑖𝑐  + 𝑝𝑝𝑙 𝑤𝑖𝑡ℎ 𝑠𝑢𝑖𝑐𝑖𝑑𝑎𝑙 𝑡ℎ𝑜𝑢𝑔ℎ𝑡𝑠 }}$
  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="90" height="95" alt="Image" src="https://github.com/user-attachments/assets/fcd8455e-bab9-4fb5-b373-e29f7381684c" />
 <img width="240" height="174" alt="Image" src="https://github.com/user-attachments/assets/f69aa57c-8b8d-4a3e-b35f-a793413df4f5" />

@@ -10,7 +10,7 @@ $\color{Turquoise }{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$
  
 
 
-<img width="160" height="120" alt="Image" src="https://github.com/user-attachments/assets/bd093f50-0dd0-4034-b57d-21eb28c79cb0" /> <img width="100" height="88" alt="Image" src="https://github.com/user-attachments/assets/48cbbd29-0d9b-4ba8-87b9-845749aa3e96" /> $\color{Coral }{\text{ ㅤㅤ𝑫𝑵𝑰: 𝓑𝑎𝑠𝑖𝑐  + 𝑝𝑒𝑜𝑝𝑙𝑒 𝑤𝑖𝑡ℎ 𝑠𝑢𝑖𝑐𝑖𝑑𝑎𝑙 𝑡ℎ𝑜𝑢𝑔ℎ𝑡𝑠 }}$ 
+<img width="160" height="120" alt="Image" src="https://github.com/user-attachments/assets/bd093f50-0dd0-4034-b57d-21eb28c79cb0" /> <img width="100" height="88" alt="Image" src="https://github.com/user-attachments/assets/48cbbd29-0d9b-4ba8-87b9-845749aa3e96" /> $\color{Coral }{\text{ 𝑫𝑵𝑰: 𝓑𝑎𝑠𝑖𝑐  + 𝑝𝑒𝑜𝑝𝑙𝑒 𝑤𝑖𝑡ℎ 𝑠𝑢𝑖𝑐𝑖𝑑𝑎𝑙 𝑡ℎ𝑜𝑢𝑔ℎ𝑡𝑠 }}$ 
 $\color{Turquoise }{\text{        ◜ 𝑯𝒆 𝒊𝒔 𝒔𝒐 𝙈𝙀 ʲᵃʸ ʷᵃˡᵏᵉʳ    }}$ 
  <img width="145" height="338" alt="Image" src="https://github.com/user-attachments/assets/7e9ba5b0-2b98-4a85-a41a-6aa632c125f8" />
 $\color{Beige }{\text{  ㅤㅤㅤㅤㅤㅤ ˚　　　　✦　　　.　　. 　 ˚　.⌣⌣⌣⌣⌣⌣⌣༄˖°.🪐.ೃ࿔*:･⌣⌣⌣⌣⌣⌣⌣﹑　　　 . ✦　　　 　˚　　　 . ★.}}$ 

@@ -18,6 +18,6 @@ $\color{Beige }{\text{  ㅤㅤㅤㅤㅤㅤ ˚　　　　✦　　　.　�
 
 > 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="340" height="160" alt="Image" src="https://github.com/user-attachments/assets/10830d0c-0651-44d8-8857-336630b55f76" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="320" height="160" alt="Image" src="https://github.com/user-attachments/assets/10830d0c-0651-44d8-8857-336630b55f76" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="424" height="68" alt="Image" src="https://github.com/user-attachments/assets/63d2bec4-8bd6-486b-9bd3-4658bd7473be" />

@@ -5,7 +5,7 @@ $\color{#33bda1}{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$
   $\color{#7a5257}{\text{ ﹑            𝑹𝑢 ⇀ 𝐸𝑛𝑔 (𝑏𝑎𝑑 𝑠𝑜𝑟𝑟𝑦)}}$ 
 $\color{#33bda1}{\text{ ⚝  𝑫𝑵𝑰: 𝓑𝑎𝑠𝑖𝑐  + 𝑝𝑝𝑙 𝑤𝑖𝑡ℎ 𝑠𝑢𝑖𝑐𝑖𝑑𝑎𝑙 𝑡ℎ𝑜𝑢𝑔ℎ𝑡𝑠 }}$
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="90" height="95" alt="Image" src="https://github.com/user-attachments/assets/fcd8455e-bab9-4fb5-b373-e29f7381684c" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="100" height="80" alt="Image" src="https://github.com/user-attachments/assets/fcd8455e-bab9-4fb5-b373-e29f7381684c" />
 <img png="240" height="174" alt="Image" src="https://github.com/user-attachments/assets/f69aa57c-8b8d-4a3e-b35f-a793413df4f5" />
  
 

@@ -24,7 +24,5 @@ $\color{#ffd792}{\text{  ㅤㅤㅤㅤㅤㅤ ˚　　　　✦　　　.　
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/63d2bec4-8bd6-486b-9bd3-4658bd7473be" />
  
-
-    </td>
   </tr>
 </table>

@@ -6,11 +6,11 @@ $\color{#33bda1}{\text{﹑       ﹑      ﹑   
 <div align="center"> <table border="1" rules="none" cellpadding="10">
   <tr>
     <td>
-      <strong>$\color{#f4d175}{\text{ ◜𝐴𝑛𝑦 𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠 ◝ }}$ 
+          <strong>             $\color{#f4d175}{\text{ ◜𝐴𝑛𝑦 𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠 ◝ }}$ 
 <br>
-$\color{#ff8f51}{\text{ ◜𝐸𝑁𝐹𝑃 ◝ }}$
+              $\color{#ff8f51}{\text{ ◜𝐸𝑁𝐹𝑃 ◝ }}$
 <br>
-$\color{#ff6e63}{\text{  ◜𝑎𝑠𝑒𝑥𝑢𝑎𝑙◝ }}$
+              $\color{#ff6e63}{\text{ ◜𝑎𝑠𝑒𝑥𝑢𝑎𝑙◝ }}$
 <br>
 $\color{#de5568}{\text{ 𝐸𝑛𝑛𝑒𝑎𝑔𝑟𝑎𝑚 𝟸 (𝑤𝑖𝑡ℎ 𝑠𝑡𝑟𝑜𝑛𝑔 𝟽 𝑡𝑒𝑛𝑑𝑒𝑛𝑐𝑖𝑒𝑠) 𝑜𝑘  }}$
 <br>

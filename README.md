@@ -25,7 +25,8 @@ $\color{#7a5257}{\text{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="100" height="80" alt="Image" src="https://github.com/user-attachments/assets/fcd8455e-bab9-4fb5-b373-e29f7381684c" />
 <img png="240" height="174" alt="Image" src="https://github.com/user-attachments/assets/f69aa57c-8b8d-4a3e-b35f-a793413df4f5" />
- 
+ $\color{#7a5257}{\text{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣}}$ 
+
 
 <img png="160" height="120" alt="Image" src="https://github.com/user-attachments/assets/bd093f50-0dd0-4034-b57d-21eb28c79cb0" /> <img png="100" height="88" alt="Image" src="https://github.com/user-attachments/assets/48cbbd29-0d9b-4ba8-87b9-845749aa3e96" /> $\color{#ff8f51}{\text{ 𝐼`𝑚 𝑓𝑟𝑒𝑛𝑑𝑙𝑦 𝑏𝑡𝑤 }}$ 
 $\color{#33bda1}{\text{        ◜ 𝑯𝒆 𝒊𝒔 𝒔𝒐 𝙈𝙀 ʲᵃʸ ʷᵃˡᵏᵉʳ    }}$ 

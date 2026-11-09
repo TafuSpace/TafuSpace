@@ -3,7 +3,7 @@
     <td>
       <strong> $\color{#33bda1}{\text{  ﹑      ◜ 𝒽𝑒𝓁𝓁𝑜   }}$  </strong>
      
- ㅤㅤㅤㅤㅤㅤ<img png="88" height="36" alt="Image" src="https://github.com/user-attachments/assets/2a15d427-f513-4dcc-8aa1-ff3a1dd70d69" />  $\color{#fd765d}{\text{         ◝ 𝐴𝑛𝑦 𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠 ◝ }}$
+ ㅤㅤㅤ<img png="88" height="36" alt="Image" src="https://github.com/user-attachments/assets/2a15d427-f513-4dcc-8aa1-ff3a1dd70d69" />  $\color{#fd765d}{\text{         ◝ 𝐴𝑛𝑦 𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠 ◝ }}$
  $\color{#ff9050}{\text{      𝐸𝑁𝐹𝑃 : 𝑎𝑠𝑒𝑥𝑢𝑎𝑙 : 𝐸𝑛𝑛𝑒𝑎𝑔𝑟𝑎𝑚 𝟸 (𝑤𝑖𝑡ℎ 𝑠𝑡𝑟𝑜𝑛𝑔 𝟽 𝑡𝑒𝑛𝑑𝑒𝑛𝑐𝑖𝑒𝑠) 𝑜𝑘  }}$  
   $\color{#7a5257}{\text{ ﹑            𝑹𝑢 ⇀ 𝐸𝑛𝑔 (𝑏𝑎𝑑 𝑠𝑜𝑟𝑟𝑦)}}$ 
 $\color{#33bda1}{\text{ ⚝  𝑫𝑵𝑰: 𝓑𝑎𝑠𝑖𝑐  + 𝑝𝑝𝑙 𝑤𝑖𝑡ℎ 𝑠𝑢𝑖𝑐𝑖𝑑𝑎𝑙 𝑡ℎ𝑜𝑢𝑔ℎ𝑡𝑠 }}$

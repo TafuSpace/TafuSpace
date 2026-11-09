@@ -20,6 +20,9 @@ $\color{#33bda1}{\text{ ⚝  𝑫𝑵𝑰: 𝓑𝑎𝑠𝑖𝑐  + 𝑝𝑝�
       </tr>
 </table>
 </div>
+  
+$\color{#7a5257}{\text{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣}}$ 
+  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="100" height="80" alt="Image" src="https://github.com/user-attachments/assets/fcd8455e-bab9-4fb5-b373-e29f7381684c" />
 <img png="240" height="174" alt="Image" src="https://github.com/user-attachments/assets/f69aa57c-8b8d-4a3e-b35f-a793413df4f5" />
  

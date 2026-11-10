@@ -37,6 +37,6 @@ $\color{#ffd792}{\text{  ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ˚　　　　✦�
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="320" height="160" alt="Image" src="https://github.com/user-attachments/assets/10830d0c-0651-44d8-8857-336630b55f76" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Profile Views](https://komarev.com/ghpvc/?username=TafuSpace&color=orange&style=for-the-badge)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Profile Views](https://komarev.com/ghpvc/?username=TafuSpace&color=orange&style=for-the-badge)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/63d2bec4-8bd6-486b-9bd3-4658bd7473be" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/63d2bec4-8bd6-486b-9bd3-4658bd7473be" />

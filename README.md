@@ -1,5 +1,4 @@
 $\color{#33bda1}{\text{﹑       ﹑      ﹑    ﹑        ◜ 𝒽𝑒𝓁𝓁𝑜   }}$
-
 <div align="center"> <table border="1" rules="none" cellpadding="10">
 <img png="88" height="36" alt="Image" src="https://github.com/user-attachments/assets/2a15d427-f513-4dcc-8aa1-ff3a1dd70d69" />
 </div>
@@ -37,5 +36,7 @@ $\color{#ffd792}{\text{  ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ˚　　　　✦�
 > 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="320" height="160" alt="Image" src="https://github.com/user-attachments/assets/10830d0c-0651-44d8-8857-336630b55f76" />
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Profile Views](https://komarev.com/ghpvc/?username=TafuSpace&color=yellow)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img png="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/63d2bec4-8bd6-486b-9bd3-4658bd7473be" />

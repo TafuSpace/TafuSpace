@@ -43,9 +43,6 @@ $\color{#ffd792}{\text{  ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ˚　　　　✦�
   
 ![Profile Views](https://komarev.com/ghpvc/?username=TafuSpace&color=orange&style=for-the-badge)
   
-</div>
-<img width="413" height="197" alt="ay and cole" src="https://github.com/user-attachments/assets/edbeefed-103f-4cfe-945a-97d44109a854" />
-<div align="center"> <table border="1" rules="none" cellpadding="10">
 <img png="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/63d2bec4-8bd6-486b-9bd3-4658bd7473be" />
 
 </div>
